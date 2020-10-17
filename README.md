@@ -1,2 +1,2 @@
 # oneon
-Like YouTube, but better, trying not to piss you off!
+Like YouTube, but way better, not with all these ads that keep annoying you...
